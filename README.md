@@ -37,7 +37,7 @@ WHatplus编者按：此文系《人物》杂志公众号文章，原文在今日
 
 **关于武汉市中心医院和艾芬本人在过去的两个多月中到底经历了什么？以下，是艾芬的讲述——**
 
-![portrait of Ai Fen]()
+![portrait of Ai Fen](media/portrait_of_aifen.jpg)
 
 ### 前所未有的训斥
 
@@ -95,7 +95,7 @@ WHatplus编者按：此文系《人物》杂志公众号文章，原文在今日
 
 后来，事情发展到这一步，证明李文亮是对的时候，他的心情我非常能理解，可能跟我的心情一样，不是激动、高兴，而是后悔，后悔当初就应该继续大声疾呼，应该在所有的人问我们的时候，继续说。很多很多次我都在想，如果时间能够倒回来该多好。
 
-![Woman in protection suit]()
+![Woman in protection suit](media/woman_in_protection_suit.jpg)
 
 ### 活着就是好的
 
@@ -157,7 +157,7 @@ WHatplus编者按：此文系《人物》杂志公众号文章，原文在今日
 
 这些孩子们、年轻人都非常好，就是跟着我受委屈了。我也希望这次疫情过后，国家能加大对急诊科的投入，在很多国家的医疗体系中，急诊专业都是非常受重视的。
 
-![Woman looking into the mirror]()
+![Woman looking into the mirror](media/woman_in_the_mirror.jpg)
 
 ### 不能达到的幸福
 
